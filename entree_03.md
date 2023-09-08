@@ -2,19 +2,19 @@
 ## Plan de carrière
 
 ### Présentation
-Parlez de vous. 
+je m'applle Sarah et j'aime beaucoup les jeux d'horreur. J'aime faire des "edits" dans mon temps libre et j'aime beaucoup la pizza et le kitkat.
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+L'animation 2d/3d m'intéresse beaucoup et je peux apprend plus d'affaire sur les sujets du multimédia, qui est notre future.
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Monteuse de video/film et animatrice 2d/3d. Ils m'intéresse car j'aime toujours voir les résultats et j'aime aussi le fait que je peux ressortir mon imagination.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Productions arborescence est une entreprise qui m'interesse et James wan est un artiste qui m'intéresse car il est un directeur pour les films d'horreur donc ce que j'aime.
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Dans 5 ans je me voie à l'université dans un programme soit de montage video ou film ou animation 2d/3d
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Des animations 3d de personnage comme dans les jeux video, surtout les jeux d'horreur. 
