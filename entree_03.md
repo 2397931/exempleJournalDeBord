@@ -2,19 +2,19 @@
 ## Plan de carrière
 
 ### Présentation
-Parlez de vous. 
+je m'appelle Sarah et j'aime dessiner. j'ai 17 ans et ma fête est le 17 janvier 2006. J'ai 2 grands frères et une grande soeur. J'aime vraiment les jeux et les films d'horreur 
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+Ce qui m'intéreste dans ce domaine est tout ce qui est relier 
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Programmeur 3D de jeux vidéo ou programmeur 3D de films.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Blumhouse et James wan.
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Dans 5 ans je me vois à l'université.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Animation de personnages 3d pour les jeux video comme until dawn ou animation 2d comme les animers. 
