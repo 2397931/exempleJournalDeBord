@@ -5,7 +5,7 @@
 Nommer deux points forts de votre présentation.
 
 ### Points à améliorer
-Ce que je pourrais améliorer dans ma présentation est les projets similaire et ma carte heuristique.
+Ce que je pourrais améliorer dans ma présentation sont les projets similaire et ma carte heuristique.
 ### Gestion du temps
 Très bien 😛 
 
